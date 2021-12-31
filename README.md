@@ -10,4 +10,6 @@ God bless,
 
 Ray Hermann
 Angossio Liwa
+
+Internet Aias used & up to date...
 (The LORD, Mystery2018 or Mystery2018-Origine)
