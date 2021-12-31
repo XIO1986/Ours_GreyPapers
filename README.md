@@ -11,5 +11,5 @@ God bless,
 Ray Hermann
 Angossio Liwa
 
-Internet Aias used & up to date...
-(The LORD, Mystery2018 or Mystery2018-Origine)
+Internet Geek side Alias used & up to date...
+(The_LORD, Mystery2018 or Mystery2018-Origine)
