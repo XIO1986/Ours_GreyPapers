@@ -14,3 +14,7 @@ Angossio Liwa
 Internet Geek side Alias used & up to date...
 
 (The_LORD, Mystery2018 or Mystery2018-Origine)
+
+https://activerse.company.site/
+https://sethblock.company.site/
+https://futurists.company.site/
