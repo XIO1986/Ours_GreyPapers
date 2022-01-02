@@ -13,7 +13,6 @@ Angossio Liwa
 
 Internet Geek side Alias used & up to date...
 
-(The_LORD, Mystery2018 or Mystery2018-Origine)
 
 https://activerse.company.site/
 
