@@ -11,9 +11,6 @@ God bless,
 Ray Hermann
 Angossio Liwa
 
-Internet Geek side Alias used & up to date...
-
-
 https://activerse.company.site/
 
 https://sethblock.company.site/
