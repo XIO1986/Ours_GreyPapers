@@ -21,13 +21,10 @@ https://futurists.company.site/
 
 Amazon ebook:
 
-Seth Blockchain: The Future Blockchain 3.0 :
-https://www.amazon.com/dp/B09NP55HXZ/ref=cm_sw_r_tw_dp_XZBN9275D83S1GQZY56N
+Seth Blockchain: The Future Blockchain 3.0 : https://www.amazon.com/dp/B09NP55HXZ/ref=cm_sw_r_tw_dp_XZBN9275D83S1GQZY56N
 
-Activerse Tech: Safely "Active Mode" :
-https://www.amazon.com/dp/B09NP2HGLG/ref=cm_sw_r_tw_dp_3FW5MBYRJ07KXVZ9SMCY
+Activerse Tech: Safely "Active Mode" : https://www.amazon.com/dp/B09NP2HGLG/ref=cm_sw_r_tw_dp_3FW5MBYRJ07KXVZ9SMCY
 
-Intelo & Ray Actee: Back Into our mother Earth :
-https://www.amazon.com/dp/B09NGRV9T6/ref=cm_sw_r_tw_dp_3V9PXJ0GGPZH4ABTT69V
+Intelo & Ray Actee: Back Into our mother Earth : https://www.amazon.com/dp/B09NGRV9T6/ref=cm_sw_r_tw_dp_3V9PXJ0GGPZH4ABTT69V
 
 
