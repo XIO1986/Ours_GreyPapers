@@ -1,7 +1,9 @@
 # Our_GreyPapers
 
-This section list all information visible to the public for more specific informations you can contact us by email 
-we will do our best to be in touch at the best of our abilities. 
+The Dot. box, is a nanocomputer with the power of consumption of a phone but with the capabilities of a real computer.
+
+This section list all information visible to the public for more specific information you can contact us by email 
+we will do our best to be in touch to the best of our abilities. 
 
 
 My Email is angossiol.rayh@icloud.com or rayh.angossiol@gmail.com
